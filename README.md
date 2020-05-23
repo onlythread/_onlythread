@@ -36,4 +36,9 @@
 
 – [barbie como rapunzel](https://drive.google.com/file/d/1jxW_ILTFqClqW6dr-9h4OtEguWrqhH1z/view?usp=drivesdk)
 
+– [barbie e o castelo de diamante](https://drive.google.com/file/d/1nbayodS7b72GY-5Elx44M4zY9pMAczXq/view?usp=drivesdk)
+
+– [Barbie em as 12 princesas bailarinas](https://drive.google.com/file/d/1n-0iwsyrbCCQ1h4E74EBEthIGtnVM3oB/view?usp=drivesdk)
+
 Instagram @_onlythread
+
