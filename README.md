@@ -34,4 +34,6 @@
 
 - [a princesa e a plebéia](https://drive.google.com/file/d/1YhILAbE0mOh7gkz0sZAc3H-KBUF7W5yn/view?usp=drivesdk)
 
+– [barbie como rapunzel](https://drive.google.com/file/d/1jxW_ILTFqClqW6dr-9h4OtEguWrqhH1z/view?usp=drivesdk)
+
 Instagram @_onlythread
