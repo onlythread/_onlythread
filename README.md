@@ -42,5 +42,7 @@
 
 – [barbie em as sapatilhas mágicas](https://drive.google.com/file/d/19iBNs7lv5N-0DSJlQjEPUIn1dWfP3PsT/view?usp=drivesdk)
 
+– [Barbie e o portal secreto](https://drive.google.com/file/d/1AuFoboSyIRuhNYox8C44jX5VOO93fFXm/view?usp=drivesdk)
+
 Instagram @_onlythread
 
