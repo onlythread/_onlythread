@@ -40,5 +40,7 @@
 
 – [Barbie em as 12 princesas bailarinas](https://drive.google.com/file/d/1n-0iwsyrbCCQ1h4E74EBEthIGtnVM3oB/view?usp=drivesdk)
 
+– [barbie em as sapatilhas mágicas](https://drive.google.com/file/d/19iBNs7lv5N-0DSJlQjEPUIn1dWfP3PsT/view?usp=drivesdk)
+
 Instagram @_onlythread
 
