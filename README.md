@@ -44,5 +44,7 @@
 
 – [Barbie e o portal secreto](https://drive.google.com/file/d/1AuFoboSyIRuhNYox8C44jX5VOO93fFXm/view?usp=drivesdk)
 
+– [barbie e a magia de aladus](https://drive.google.com/file/d/1F_7UNYjPj5mhmx67Bn9B-X0wB9GkwAvf/view?usp=drivesdk)
+
 Instagram @_onlythread
 
