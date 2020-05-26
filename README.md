@@ -46,5 +46,7 @@
 
 – [barbie e a magia de aladus](https://drive.google.com/file/d/1F_7UNYjPj5mhmx67Bn9B-X0wB9GkwAvf/view?usp=drivesdk)
 
+– [o diário da Barbie](https://drive.google.com/file/d/113a_Zpwc29DIy4oPZst4sjhVgmUy749b/view?usp=drivesdk)
+
 Instagram @_onlythread
 
